@@ -1,1 +1,2 @@
-# Fernando-Boudourian-inversiones-resistentes-a-la-inflaci-n
+# Fernando-Boudourian-inversiones-resistentes-a-la-inflación
+La inflación afecta el valor del dinero y puede comprometer la estabilidad financiera. Para contrarrestarlo, se recomienda diversificar con activos resilientes como bienes raíces, bonos indexados y sectores estratégicos. También es clave contar con una planificación fiscal adecuada que optimice la rentabilidad y minimice los riesgos. Un enfoque estructurado permitirá preservar el capital familiar a largo plazo.
